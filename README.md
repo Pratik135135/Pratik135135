@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Pratik135135
+- 👀 I’m interested in projects
+- 🌱 I’m currently learning how people do thing's
